@@ -1,5 +1,6 @@
 ## Hi there 👋
-![image](https://github.com/JhaAnurag/JhaAnurag/assets/64073452/7631a681-0be0-4fdc-b9e0-ba6566603858)
+![240906093-9be4d344-6782-461a-b5a6-32a07bf7b34e](https://github.com/JhaAnurag/JhaAnurag/assets/64073452/56141adb-322f-493c-8fc1-03196066c3fe)
+
 
 <!--
 **JhaAnurag/JhaAnurag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
