@@ -1,4 +1,4 @@
-![240906093-9be4d344-6782-461a-b5a6-32a07bf7b34e-ezgif com-optimize](https://github.com/JhaAnurag/JhaAnurag/assets/64073452/bbcc34ba-91ad-4e04-883a-5e6073d7e419)
+![240906093-9be4d344-6782-461a-b5a6-32a07bf7b34e-ezgif com-optimize(4)](https://github.com/JhaAnurag/JhaAnurag/assets/64073452/472f988d-25bd-423d-bd4f-28c5874a9101)
 <!--
 ## Hi there 👋
 **JhaAnurag/JhaAnurag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
